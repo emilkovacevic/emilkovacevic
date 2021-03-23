@@ -6,7 +6,7 @@
      I am open for an opportunity to work with a team that runs on clear communication. I want to align myself with a team of developers I believe in and where I can create positive change. I am always looking to learn more and am open to taking on challenging projects.
 - 📫 You are wellcome to reach me on =>  Email: emil.kovacevic.dev@gmail.com ,
                                           LinkedIn: https://www.linkedin.com/in/emil-kovacevic-2893aa54 ,
-- :link: Have a look at my personal portfolio: emilkovacevic.com                                       
+- :link: Have a look at my personal portfolio: https://www.emilkovacevic.com                                       
  
                                          
                                   
